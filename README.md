@@ -115,4 +115,4 @@
 
 <a href="https://ufabet888.live/">ยูฟ่าเบท</a>
 
-<a href="https://sa-game24h.com/">sagameing</a>
+<a href="https://sa-game24h.com/">sagaming</a>
